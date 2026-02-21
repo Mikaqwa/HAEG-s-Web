@@ -1,3 +1,3 @@
 本作只是2023年脑子抽了做的
-网站:haeg.neocities.org
+网站(仍在):haeg.neocities.org
 # 本人已经退群,跑路了>^< #
